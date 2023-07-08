@@ -5,4 +5,4 @@ I was pressing wrong characters many times while i coding.
  With this game I get used to using English layout.
  This game Just for Special Characters at programming languages. Thats the main difference other finger games.
  If you are coding and trying to get used to new keyboard layout this game will help you.
- have fun while playing :)
+ have fun while playing
